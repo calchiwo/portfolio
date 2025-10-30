@@ -1,1 +1,1 @@
-My personal portfolio check it out at
+My personal portfolio
